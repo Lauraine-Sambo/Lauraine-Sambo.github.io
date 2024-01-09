@@ -4,7 +4,7 @@ Lauraine Carmel E. Sambo
 
 ### NIKI
 
-![alt text] (https://i.scdn.co/image/ab67616d0000b273135a78be90223c126a4e2c36)
+![alt text](https://github.com/Lauraine-Sambo/Lauraine-Sambo.github.io/assets/150877003/27ffb7b7-67e5-4461-9316-f2da0e155d75)
 
 
 **About Niki**

@@ -1,7 +1,7 @@
 # Lauraine-Sambo.github.io
 Lauraine Carmel E. Sambo
-# Best Indonesian Indie-Folk Artist
 
+# Best Indonesian Indie-Folk Artist
 ### NIKI
 
 ![alt text](https://i.scdn.co/image/ab67616d0000b273135a78be90223c126a4e2c36)

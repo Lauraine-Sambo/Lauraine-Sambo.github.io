@@ -4,7 +4,7 @@ Lauraine Carmel E. Sambo
 
 ### NIKI
 
-![alt text](E:\Users\Cami Sambo\Downloads\NIKI.jpg)
+![alt text](https://i.scdn.co/image/ab67616d0000b273135a78be90223c126a4e2c36)
 
 
 **About Niki**
